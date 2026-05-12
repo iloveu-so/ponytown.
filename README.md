@@ -1,2 +1,2 @@
-# ponytown.
-uhh... shout-out to that lovely guest cosplayer! one of the first times I really talk to people first, but your so cool, your so kind, I wish to talk to you later!! have a nice day/night 💗 thank you for giving me all those compliments, I mean it 🥹🥹🥹 I think im going to add to this heheh...ha. 
+# lessthanthree
+uhh... shout-out to that lovely guest cosplayer! one of the first times I really talk to people first, but your so cool, your so kind, I wish to talk to you later!! have a nice day/night 💗 thank you for giving me all those compliments, I mean it 🥹🥹🥹 I think im going to add to this heheh...ha.  im actually so glad we met. I really am. I know these feelings are a little soon. but I believe they'll only get stronger from here.

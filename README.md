@@ -5,7 +5,10 @@ god's your perfect, I cant name how much you mean to me now every since we met. 
 
 i was also not very fond of early relationships, but you are the one and only exception. I love you so much and i'll keep saying it I wish to be yours forever and ever my dearest. I really do. thank you for caring, as i will care for you when you need it. please talk to me when you need it, i'll always be by your side until then. 
 
-I love you Fred. I really do. 
+I don't mind if your stressed, tired, or extremely upset. I will always be by your side, please talk to me, I love you so much, so so much, you mean the absolute world to me. MY world. I swear I won't let anyone hurt you. please talk to me, Im always here, but if you want space that's a-okay! i'll check up on you and see how your doing. no matter what happens to either of us, i'll still very much love you forever. rest well, relax well, I love you. mwahmwahmwah 💗💗💗💗
+
+I love you Fred. I really do, i cant put it in words any more. you mean so much to me that love is a understatement 
+to me. 
 
 
 💕-
